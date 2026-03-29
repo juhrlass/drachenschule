@@ -138,3 +138,101 @@ Hi, mein Buch heisst *Die geheime Drachenschule*.
 Stellt euch vor, ihr werdet ploetzlich auf eine geheime Insel geschickt, auf der es Drachen gibt. Richtige, riesige, feuerspeiende Drachen. Und ihr sollt auf einem reiten. Genau das passiert Henry. Er ist elf, kommt aus London und hat eigentlich nur Fussball im Kopf. Auf der Insel Sieben Feuer trifft er fuenf andere Kinder, und jeder von ihnen bekommt einen Drachen. Nur bei Henry laeuft alles schief: Sein Drache redet nicht mit ihm, und Henry weiss nicht warum. Er versucht es mit allem - er putzt sogar die Hoehle des Drachen. Aber nichts hilft. Henry muss drei Pruefungen bestehen, und ohne seinen Drachen auf seiner Seite sieht es ziemlich schlecht fuer ihn aus.
 
 Was mir an dem Buch am besten gefaellt, ist dass Henry nicht aufgibt, auch wenn es aussichtslos wirkt. Und dass am Ende seine Freunde den Unterschied machen. Ich lese euch jetzt eine Stelle vor, in der Henry zum ersten Mal merkt, dass sein Drache ihm doch etwas sagen will - auch wenn er es erst mal ueberhaupt nicht versteht.
+
+---
+
+## Fakten und Belege aus dem Buch
+
+> **Hinweis:** Das Buch liegt als E-Book (EPUB) vor und enthaelt keine gedruckten Seitenzahlen. Die Belege verweisen daher auf Kapitel (Kap.) des Buches. Die Printausgabe hat 28 Kapitel, einen Prolog und einen Epilog.
+
+### Personen und ihre Einfuehrung
+
+| Fakt | Beleg |
+|---|---|
+| Henry McGregor ist 11 Jahre alt, feiert Geburtstag, spielt Fussball und ist Kapitaen seiner Mannschaft | Kap. 1 |
+| Charles McBain stellt sich als Henrys Cousin dritten Grades vor und traegt das Wappen von Sieben Feuer | Kap. 2 |
+| Charles erwaehnt, dass jemand "sehr Altes und griesgraemiges" auf Henry wartet | Kap. 3 |
+| Arthur Doyle stellt sich am Hafen als Erster vor, erkennt Henry als Torschuetzenkoenig | Kap. 3 |
+| Edward Abercrombie kommt aus der beruehmten Abercrombie-Familie | Kap. 3 |
+| Lucy (Lucinda) ist barfuss, hat bunte Baender im Haar, stiehlt Arthur das Handy | Kap. 3 |
+| Timothy hat feuerrote Haare, nennt Lucy "Zirkuskind", provoziert Arthur | Kap. 3 |
+| Chloe wird als blondes, schuechernes Maedchen eingefuehrt | Kap. 3 |
+| Master Duncan McBain - einaeugig, Augenklappe, buschiger Schnurrbart, ihr Ausbilder fuer sieben Jahre | Kap. 4 |
+| Master Nicolas Ramsay - Hueter der Drachenbibliothek, ein Finger fehlt | Kap. 8 |
+| Master Finley - Lehrer fuer Goldwirtschaft, dick, kahlkoepfig, riesige Haende, Zaubertricks | Kap. 10 |
+| Mistress Dora - Handwerkslehrerin, russverschmiert, schmiedet Aexte | Kap. 13 |
+| Mistress Leonella - Lindwurmpflege, kocht Heilmittel und Kamillentee | Kap. 13 |
+
+### Clans, Wappen und Gaben
+
+| Fakt | Beleg |
+|---|---|
+| Henry gehoert zum Clan McBain (Kriegerclan), Wappen: Faust auf Schild mit Drachenfluegeln | Kap. 7, 9 |
+| Wahlspruch McBain: "Wir geben niemals auf" | Kap. 9 |
+| Gabe der McBains: schnelle Heilkraft bei Verletzungen | Kap. 9 |
+| Chloe gehoert zum Clan Eclaire, Wahlspruch: "Ich brenne nicht, ich leuchte" (bezieht sich auf kaltes Feuer) | Kap. 8 |
+| Lucys Clan hat eine musikalische Gabe - sie kann Dudelsack spielen und damit alle Drachen besaenftigen | Kap. 9, 13 |
+| Arthur gehoert zum Dunbar-Clan, hat ein fotografisches Gedaechtnis ("mentales Fotografieren") | Kap. 9 |
+| Timothy gehoert zum O'Sullivan-Clan (frueherer Beiname: "Clan der Diebe"), Wahlspruch: "Niemand reizt mich ungestraft" | Kap. 10 |
+| Timothy ist ein Mathe-Genie - loest die komplizierte Goldformel im Kopf | Kap. 10 |
+| Timothys Grossvater hat die Familienbank (O'Sullivan & Sons) in den Ruin getrieben | Kap. 11 |
+
+### Drachen und das Band
+
+| Fakt | Beleg |
+|---|---|
+| Auf dem Drachenacker sehen die Kinder zum ersten Mal echte Drachen | Kap. 5 |
+| Master Duncan erklaert: "Ihr seid Drachenreiter" und das Buendnis der Sieben Feuer | Kap. 5, 7 |
+| Drachen waehlen ihren Reiter selbst, indem sie dem vorherigen Reiter den Namen nennen | Kap. 5 |
+| Lucy knuepft als Erste ein Band, ihr Drache "singt", Chloe "sieht Bilder" | Kap. 6 |
+| Henrys Drache (ein roter Grind) weigert sich, ein Band zu Henry zu knuepfen | Kap. 6 |
+| Henry klettert trotzdem auf den Drachen und fliegt - zum Erstaunen aller | Kap. 6 |
+| Feuertaufe: Timothy nennt seinen Drachen "Koenigsblut", Edward "Koenigsherz" (Zwillingsdrachen), Arthur "Pyrothargas", Lucy "Wellentaenzerin", Chloe "Tausendschoen" | Kap. 7 |
+| Henry nennt seinen Drachen "Happy" (nach seinem Wellensittich) - der Drache akzeptiert nur durch Zufall (Kraehe aergert ihn) | Kap. 7 |
+| Der Drache kommuniziert aus seiner Perspektive: Er will absichtlich kein Band knuepfen | Kap. 6, 7, 12 |
+| Henry greift Happys Hoerner und hoert ein einziges Wort: "ROCK" | Kap. 12 |
+| Happy zeigt Henry eine Hoehlenzeichnung: ein Vogel mit gespreizten Fluegeln und sieben Kerben im Kreis | Kap. 14 |
+| Drachen sind Vegetarier und fressen Gold (3-5 Muenzen pro Tag, abhaengig von der Groesse) | Kap. 10 |
+| Gold wirkt wie ein Magnet und haelt die Drachen auf der Insel | Kap. 10 |
+
+### Die drei Pruefungen
+
+| Fakt | Beleg |
+|---|---|
+| **1. Pruefung - Feuertaufe:** Dem Drachen einen neuen Namen geben. Falscher Name = Drache verwandelt dich in Asche | Kap. 7 |
+| Henry besteht durch Glueck (Kraehen-Missverstaendnis) | Kap. 7 |
+| **2. Pruefung - Feuerprobe:** Im Felsentor (Dolmen) stehen und drei Feuerbaellen des eigenen Drachen ausweichen. Schild benutzen = durchgefallen | Kap. 17 |
+| Arthur wird beim dritten Versuch getroffen und faellt durch | Kap. 17 |
+| Henry uebernimmt vier Versuche (drei eigene + einen fuer Arthur), stellt den Schild weg und besteht schutzlos | Kap. 18 |
+| Henry erkennt Happys Blickrichtung und Gewichtsverlagerung - beim dritten Versuch wird er getaeuscht (Bluff), beim vierten laesst er sich flach fallen | Kap. 18 |
+| **3. Pruefung - Feuersprung:** Sich im Flug vom Drachen fallen lassen, der Drache muss einen auffangen | Kap. 24, 28 |
+| Henry besteht den Feuersprung auf Phoenix mit geschlossenen Augen | Kap. 28 |
+
+### Das Raetsel um CROQC
+
+| Fakt | Beleg |
+|---|---|
+| Henry versteht "ROCK" falsch - sucht nach dem Riesenvogel Roch aus Tausendundeiner Nacht | Kap. 14, 16 |
+| Arthur findet auf einem Globus in der Bibliothek die Insel "CROQC" noerdlich von Schottland | Kap. 22 |
+| Happy fliegt bei jedem Flugunterricht nach Norden, kehrt aber immer an derselben Stelle um | Kap. 12, 16 |
+| Die neue Goldlieferbank (Blackstone) liefert 800 Muenzen pro Sack statt 777 - die Goldreserve ist gewachsen | Kap. 23 |
+| Timothy berechnet: 14 Saecke Gold muessen mitgenommen werden, um die Grenze zu verschieben | Kap. 25 |
+| Lucy kann mit Wellentaenzerin nicht bis Croqc fliegen - auch unter Wasser nicht | Kap. 24 |
+
+### Wendepunkte und Konflikte
+
+| Fakt | Beleg |
+|---|---|
+| Henry und Lucy streiten sich, weil er Arthur nicht beim Fliegen geholfen hat | Kap. 12 |
+| Lucy entdeckt Henrys Brandwunde am Knoechel und konfrontiert ihn - er gesteht, dass er kein Band zu Happy hat | Kap. 19 |
+| Timothy entdeckt Henrys Geheimnis auf dem Drachenacker | Kap. 20 |
+| Henry pruegelt sich mit Timothy, beide bekommen Flugverbot und muessen Goldmuenzen polieren | Kap. 20 |
+| Henry will aufgeben und zieht seine alten Londoner Klamotten an | Kap. 21 |
+| Arthur und Lucy verhindern, dass Henry sich bei Master Duncan outet | Kap. 21 |
+| Timothy verspricht: "Ich werde dich nicht verpetzen. Ich bin ein O'Sullivan. Und wir sind keine Verraeter." | Kap. 23 |
+| Alle sechs Kinder schwoeren Zusammenhalt - auch Timothy hilft | Kap. 25 |
+| Nachtflug nach Croqc: Gold wird heimlich aus der Schatzkammer geschafft | Kap. 26 |
+| Phoenix schluepft aus einem geborstenen Findling und knuepft sofort ein Band zu Henry | Kap. 27 |
+| Master Duncan tut zunaechst so, als wuerde Henry bestraft - loest dann auf: "Ich haette es genauso gemacht" | Kap. 28 |
+| Im Epilog fasst Henry Happys Hoerner an und hoert zum ersten Mal dessen uralte Stimme: Happy erklaert, warum er kein Band knuepfen durfte | Epilog |
+| Happys Reaktion auf seinen Namen: "HAPPY? Du wagst es, mich - den groessten, den edelsten, den fuerchterlichsten aller Drachen - nach einem putzigen Haustier zu benennen?" | Epilog |
