@@ -121,7 +121,7 @@ Hallo, ich moechte euch heute das Buch *Die geheime Drachenschule* von Emily Sky
 
 In dem Buch geht es um Henry, einen ganz normalen Jungen aus London, der am liebsten Fussball spielt. An seinem elften Geburtstag wird er auf eine geheime Insel gebracht, die Sieben Feuer heisst. Dort erfaehrt er, dass es Drachen wirklich gibt - und dass er lernen soll, einen zu reiten. Das Problem ist nur: Alle anderen Kinder koennen sofort mit ihrem Drachen reden und eine Verbindung aufbauen. Aber Henrys Drache will einfach nichts mit ihm zu tun haben. Er ignoriert ihn komplett. Henry muss trotzdem drei gefaehrliche Pruefungen bestehen, sonst fliegt er von der Schule. Und er muss herausfinden, warum sein Drache sich so seltsam verhaelt. Dabei hilft ihm vor allem eins: seine Freunde.
 
-Ich lese euch jetzt eine Stelle vor, an der Henry zum ersten Mal auf seinem Drachen fliegt - obwohl der ihn eigentlich gar nicht auf seinem Ruecken haben will.
+Ich lese euch jetzt die Stelle vor, in der Henry und die anderen zum ersten Mal die Drachen sehen. Keiner von ihnen weiss vorher, was sie auf der Insel erwartet.
 
 ### Vorschlag 2
 
@@ -129,7 +129,7 @@ Ich stelle euch heute *Die geheime Drachenschule* vor. Das Buch ist von Emily Sk
 
 Es geht um Henry McGregor. Henry ist elf und liebt Fussball ueber alles. Aber dann holt ihn ein Fremder ab und bringt ihn auf eine Insel, auf der echte Drachen leben. Dort soll er Drachenreiter werden. Klingt erstmal cool, oder? Ist es aber nicht - jedenfalls nicht fuer Henry. Denn sein Drache kann ihn nicht leiden. Waehrend die anderen Kinder mit ihren Drachen Gedanken austauschen und zusammen durch die Wolken fliegen, bekommt Henry nur Schweigen und Feuerbaelle ab. Er nennt seinen riesigen roten Drachen ausgerechnet Happy - nach seinem Wellensittich. Ihr koennt euch vorstellen, wie begeistert der Drache davon ist.
 
-Das Buch ist lustig und spannend, und man will immer wissen, wie es weitergeht. Ich lese euch jetzt eine Stelle vor, in der es richtig gefaehrlich wird: Henry muss Feuerbaellen ausweichen, die sein eigener Drache auf ihn schiesst.
+Das Buch ist lustig und spannend, und man will immer wissen, wie es weitergeht. Ich lese euch jetzt die Stelle vor, in der die Kinder zum ersten Mal erfahren, was sie auf Sieben Feuer wirklich erwartet.
 
 ### Vorschlag 3
 
@@ -137,25 +137,23 @@ Hi, mein Buch heisst *Die geheime Drachenschule*.
 
 Stellt euch vor, ihr werdet ploetzlich auf eine geheime Insel geschickt, auf der es Drachen gibt. Richtige, riesige, feuerspeiende Drachen. Und ihr sollt auf einem reiten. Genau das passiert Henry. Er ist elf, kommt aus London und hat eigentlich nur Fussball im Kopf. Auf der Insel Sieben Feuer trifft er fuenf andere Kinder, und jeder von ihnen bekommt einen Drachen. Nur bei Henry laeuft alles schief: Sein Drache redet nicht mit ihm, und Henry weiss nicht warum. Er versucht es mit allem - er putzt sogar die Hoehle des Drachen. Aber nichts hilft. Henry muss drei Pruefungen bestehen, und ohne seinen Drachen auf seiner Seite sieht es ziemlich schlecht fuer ihn aus.
 
-Was mir an dem Buch am besten gefaellt, ist dass Henry nicht aufgibt, auch wenn es aussichtslos wirkt. Und dass am Ende seine Freunde den Unterschied machen. Ich lese euch jetzt eine Stelle vor, in der Henry zum ersten Mal merkt, dass sein Drache ihm doch etwas sagen will - auch wenn er es erst mal ueberhaupt nicht versteht.
+Was mir an dem Buch am besten gefaellt, ist dass Henry nicht aufgibt, auch wenn es aussichtslos wirkt. Und dass am Ende seine Freunde den Unterschied machen. Ich lese euch jetzt die Stelle vor, in der die Kinder zum ersten Mal die Drachen sehen - und erfahren, dass sie selbst Drachenreiter werden sollen.
 
 ### Vorschlag 4 (kurz)
 
-Hallo, ich lese heute aus *Die geheime Drachenschule* von Emily Skye vor. Henry ist elf und wird auf eine geheime Insel gebracht, auf der Kinder Drachen reiten lernen. Sein Problem: Sein Drache will nicht mit ihm reden. Henry muss trotzdem drei gefaehrliche Pruefungen bestehen - und lernt dabei, dass man die groessten Abenteuer nicht alleine schafft. Ich lese euch jetzt eine spannende Stelle vor.
+Hallo, ich lese heute aus *Die geheime Drachenschule* von Emily Skye vor. Henry ist elf und wird auf eine geheime Insel gebracht, auf der Kinder Drachen reiten lernen. Sein Problem: Sein Drache will nicht mit ihm reden. Henry muss trotzdem drei gefaehrliche Pruefungen bestehen - und lernt dabei, dass man die groessten Abenteuer nicht alleine schafft. Ich lese euch die Stelle vor, in der die Kinder zum ersten Mal echte Drachen sehen.
 
 ### Vorschlag 5 (ganz kurz)
 
-Mein Buch heisst *Die geheime Drachenschule*. Es geht um einen Jungen namens Henry, der auf einer geheimen Insel Drachenreiter werden soll. Aber sein Drache ignoriert ihn einfach. Wie Henry es trotzdem schafft, ist lustig und spannend. Ich lese euch jetzt daraus vor.
+Mein Buch heisst *Die geheime Drachenschule*. Es geht um einen Jungen namens Henry, der auf einer geheimen Insel Drachenreiter werden soll. Aber sein Drache ignoriert ihn einfach. Wie Henry es trotzdem schafft, ist lustig und spannend. Ich lese euch die Stelle vor, an der die Kinder das grosse Geheimnis der Insel erfahren.
 
 ### Vorschlag 6 (minimal)
 
-Ich lese aus *Die geheime Drachenschule* vor. Henry soll Drachenreiter werden, aber sein Drache redet nicht mit ihm. Ob er es trotzdem schafft? Hoert selbst.
+Ich lese aus *Die geheime Drachenschule* vor. Henry kommt auf eine geheime Insel und soll Drachenreiter werden - aber sein Drache redet nicht mit ihm. Ich lese euch vor, wie die Kinder zum ersten Mal die Drachen entdecken.
 
 ---
 
 ## Fakten und Belege aus dem Buch
-
-> **Hinweis:** Das Buch liegt als E-Book (EPUB) vor und enthaelt keine gedruckten Seitenzahlen. Die Belege verweisen daher auf Kapitel (Kap.) des Buches. Die Printausgabe hat 28 Kapitel, einen Prolog und einen Epilog.
 
 ### Personen und ihre Einfuehrung
 
