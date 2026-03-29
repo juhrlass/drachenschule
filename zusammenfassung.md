@@ -139,6 +139,18 @@ Stellt euch vor, ihr werdet ploetzlich auf eine geheime Insel geschickt, auf der
 
 Was mir an dem Buch am besten gefaellt, ist dass Henry nicht aufgibt, auch wenn es aussichtslos wirkt. Und dass am Ende seine Freunde den Unterschied machen. Ich lese euch jetzt eine Stelle vor, in der Henry zum ersten Mal merkt, dass sein Drache ihm doch etwas sagen will - auch wenn er es erst mal ueberhaupt nicht versteht.
 
+### Vorschlag 4 (kurz)
+
+Hallo, ich lese heute aus *Die geheime Drachenschule* von Emily Skye vor. Henry ist elf und wird auf eine geheime Insel gebracht, auf der Kinder Drachen reiten lernen. Sein Problem: Sein Drache will nicht mit ihm reden. Henry muss trotzdem drei gefaehrliche Pruefungen bestehen - und lernt dabei, dass man die groessten Abenteuer nicht alleine schafft. Ich lese euch jetzt eine spannende Stelle vor.
+
+### Vorschlag 5 (ganz kurz)
+
+Mein Buch heisst *Die geheime Drachenschule*. Es geht um einen Jungen namens Henry, der auf einer geheimen Insel Drachenreiter werden soll. Aber sein Drache ignoriert ihn einfach. Wie Henry es trotzdem schafft, ist lustig und spannend. Ich lese euch jetzt daraus vor.
+
+### Vorschlag 6 (minimal)
+
+Ich lese aus *Die geheime Drachenschule* vor. Henry soll Drachenreiter werden, aber sein Drache redet nicht mit ihm. Ob er es trotzdem schafft? Hoert selbst.
+
 ---
 
 ## Fakten und Belege aus dem Buch
