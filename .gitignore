@@ -1,0 +1,3 @@
+*.epub
+epub_extracted/
+fulltext.txt
